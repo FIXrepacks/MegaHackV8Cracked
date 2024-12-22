@@ -15,3 +15,5 @@ StartPos Switcher - Switch between start positions with your arrow keys, no more
 # Supports
 
 Supports: Windows, Geometry Dash(Steam),(cracked) ✅
+
+Enjoy!
