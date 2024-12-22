@@ -3,7 +3,7 @@
  
 ![image](https://github.com/user-attachments/assets/7a26c932-ec50-4cca-ab29-620bef8b7086)
 
-# Whats new in crack
+# Whats new in crack ✅
 
 
 Overlay - Mega Hack v8 Pro integrates itself into Geometry Dash to access all its features from in the game, instead of an external program
@@ -14,4 +14,4 @@ Hotkeys - Hotkeys can be assigned to certain hacks to toggle them at any time
 StartPos Switcher - Switch between start positions with your arrow keys, no more dozen copies per level for practicin
 # Supports
 
-Supports: Windows, Geometry Dash(Steam),(cracked)
+Supports: Windows, Geometry Dash(Steam),(cracked) ✅
