@@ -17,3 +17,12 @@ StartPos Switcher - Switch between start positions with your arrow keys, no more
 Supports: Windows, Geometry Dash(Steam),(cracked) ✅
 
 Enjoy!
+
+
+
+
+
+
+#free
+#cracked
+Cracked megahack,geometry dash, free megahack, megahackv8 crack , mhv8crack, free mega hack v8 , free cheats , geometry dash mega hack v8 crack
